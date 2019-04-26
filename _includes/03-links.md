@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+Please visit my [IG profile](https://www.instagram.com/pronoym99/) and follow me.
